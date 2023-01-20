@@ -89,3 +89,8 @@ https://mega.nz/file/xsxSBSzI#O65JLbtw4x-23zrcsoHxQVQSSp_HVeD3EDCHUZvyKQ8
 Bitcoin Donation
 
 35TaRswtBRX9qa7RNanEbBx3FxJbMLH9Hy
+
+Monero Donation
+
+4AHVoG2iikrMeSy4Xgnjd4Mkig6TzCzgEUFpn2MxuoLJFsDhb4kPdiWgyhyMtnbPRafW1psEnpRWs6sgwuJZkBxvSuRmrVB
+
