@@ -84,3 +84,8 @@ Download
 
 
 https://mega.nz/file/xsxSBSzI#O65JLbtw4x-23zrcsoHxQVQSSp_HVeD3EDCHUZvyKQ8
+
+
+Bitcoin Donation
+
+35TaRswtBRX9qa7RNanEbBx3FxJbMLH9Hy
